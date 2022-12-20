@@ -1,3 +1,5 @@
+![image](https://user-images.githubusercontent.com/115587997/208783427-88e94f22-99a0-4b1a-8609-4aec32ff8c49.png)
+
 ### *<div align="center">I'm a lover of technology and I'm looking for a job or a project to collaborate and improve my skills and knowledge.</div>*  
   
 
