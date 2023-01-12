@@ -1,6 +1,6 @@
 ![image](https://user-images.githubusercontent.com/115587997/208783427-88e94f22-99a0-4b1a-8609-4aec32ff8c49.png)
 
-### *<div align="center">I'm a lover of technology and I'm looking a job or a project to collaborate and improve my skills and knowledge.</div>*  
+### *<div align="center">Web developer with experience in systems and computer science. Self-motivated learner, proactive and committed to delivering innovative solutions in collaborative work environments.</div>*  
   
 
 - 👓 I'm currently working in my own projects and i'm improving my english.  
