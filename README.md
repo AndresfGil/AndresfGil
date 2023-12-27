@@ -6,7 +6,7 @@
 - 👓 I'm currently working in my own projects and i'm improving my english.  
   
 
-- 🔭 I’m currently learning C# and .NET  
+- 🔭 I’m currently learning REACT  
   
 
 - 🔬I'm autodidact, also i study in an university  
